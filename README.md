@@ -11,3 +11,6 @@ https://m.youtube.com/watch?v=pJ9RvMVrYsg&pp=ygUnZGlhbGVjdGljYWwgYW5kIGhpc3Rvcml
 
 If I'm sitting in the Libyan desert, without ever knowing Karl Marx, and do my research on labor and capital, I will come to the same conclusion as him."
 https://m.youtube.com/watch?v=ZM-Y7sGMGNQ
+
+The Delusion of Infinite Economic Growth
+https://www.scientificamerican.com/article/the-delusion-of-infinite-economic-growth/?amp=true
